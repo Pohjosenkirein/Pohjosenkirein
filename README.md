@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pohjosenkirein
+- 👋 Hi, I’m @Sata-Color Oy
 - 👀 I’m interested in marketing product and selling
 - 🌱 I’m currently learning My capacity of My way
 - 💞️ I’m looking to collaborate on ...
